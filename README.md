@@ -82,4 +82,4 @@ Updates will be published on this page with a revised effective date.
 For privacy-related questions or requests, contact:
 
 **Developer:** SHABIR INTERACTIVE  
-**Email:** [INSERT YOUR PUBLIC DEVELOPER CONTACT EMAIL]
+**Email:** www.baloch1231@gmail.com
